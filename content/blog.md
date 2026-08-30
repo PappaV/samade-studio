@@ -1,0 +1,1 @@
+Blog post for SAMade Studio — SA-themed digital downloads and printables
